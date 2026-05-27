@@ -1,6 +1,6 @@
 <h6 align="center">
 
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_ef25be8265b37273a13689eccb8e8277_78c16104_540.webp" width="600" />
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_435d9d6cbc2700499c99a67b95b73685_2ca13fb1_400.png" width="600" />
 
   ![profileviews](https://komarev.com/ghpvc/?username=Bloodngutsz&color=red)
 
@@ -18,4 +18,4 @@
   </a>
 </p>
   <p align="center"> <a href="https://github.com/BaphometAngel">𝘢𝘭𝘵 .
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_064b73869992503265020edf710e7809_01d69f46_1280.png" width="600" />
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_435d9d6cbc2700499c99a67b95b73685_2ca13fb1_400.png" width="600" />
