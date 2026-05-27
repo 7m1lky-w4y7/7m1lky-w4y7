@@ -7,8 +7,8 @@
 <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled220_20260526205133.png" width="300" />
 <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_0febc5dfa97cb2cbbf3218fbeed0ddfe_a1148121_250.png" width="50" />
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled219_20260526205100.png" width="320" />
-<p align="center">୧ ‧₊˚ 🥩🦴 ⋅
-<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_b64c32d638fd36746a49a4a73a789f4c_4659936a_400.webp" width="400" />    
+<p align="center">⋆｡ﾟ🪐｡⋆｡ ﾟ☾ ﾟ｡⋆ .
+<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled218_20260526204934.png" width="400" />    
 <p align="center"> 
 <p align="center">
 <p align="center">
